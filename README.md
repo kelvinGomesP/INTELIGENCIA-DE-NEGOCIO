@@ -1,1 +1,1 @@
-# Intelig-ncia-de-Neg-cio
+# Inteligencia-de-Negocio
